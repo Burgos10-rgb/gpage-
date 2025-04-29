@@ -1,1 +1,1 @@
-Nombre grado y grupo
+Diego Sebastian Burgos Delgadillo 2AMPR 
